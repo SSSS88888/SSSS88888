@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SSSS88888
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning computer
-- 💞️ I’m looking to collaborate on HUAWEI
+- 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me 2397638339@qq.com
 
 <!---
